@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yeetpet3
-- 👀 I’m interested in fornite
-- 🌱 I’m currently learning nothing
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me nothing
 - 😄 Pronouns: nothing
